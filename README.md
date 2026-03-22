@@ -1,2 +1,1 @@
 # Superdeterminism
-# People. ## Robert Sapolsky - [Robert Sapolsky: Quantum effects are not free will 2/6 [Vert Dider] 2020](https://youtu.be/m1Ebshc8Ls4)
