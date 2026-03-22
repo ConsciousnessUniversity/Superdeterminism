@@ -1,0 +1,1 @@
+- [Does Superdeterminism save Quantum Mechanics? Or does it kill free will and destroy science?](https://youtu.be/ytyjgIyegDI)
